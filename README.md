@@ -2,8 +2,6 @@
 
 *A Contemplative Journey Through the Gospel of John*
 
-![Cover](cover.jpg)
-
 ## About This Book
 
 The Gospel of John has long occupied a unique place within the Christian tradition. Written later than the other canonical gospels, it invites readers beyond events and into meaning, beyond narrative and into mystery. Throughout its pages, themes of light, life, love, abiding, and union with God rise to the surface again and again.
